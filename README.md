@@ -1,2 +1,2 @@
 # Random-image-feed
-Click to visit website: https://prezxvii.github.io/promo-code/
+Click to visit website:  https://prezxvii.github.io/Random-image-feed/
